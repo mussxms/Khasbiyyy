@@ -1,2 +1,2 @@
-# Khasbiyyy
+# NOT
 xms-avaible
